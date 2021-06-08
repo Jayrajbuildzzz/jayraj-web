@@ -1,1 +1,1 @@
-# Hi! My name's Jay. Welcome to my Page!
+# Hi! My name's Jay!
